@@ -1,2 +1,0 @@
-# amanneelkat.github.io
-Website
